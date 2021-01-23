@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about hello
+我很高兴你在这里。我打算重新喵~
